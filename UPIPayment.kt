@@ -1,1 +1,1 @@
-We can do dogital payments using google pay,apple pay and other software.
+We can do dogital payments using google pay,apple pay and other software. 
